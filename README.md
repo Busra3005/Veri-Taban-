@@ -1,1 +1,1 @@
-# Veri-Taban-
+# Veri-Tabanı-
